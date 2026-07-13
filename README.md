@@ -1,4 +1,4 @@
-# 💫 About Me:
+# HI, I'M KUSHAGRA:
 Final Year B.Tech CSE (AIML And IOT) @ GLA University |<br>AI/ML Engineer Aspirant | Full Stack Developer |<br>Generative AI & LLM Enthusiast
 
 
